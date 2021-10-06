@@ -3,7 +3,7 @@
 </p>
 
 
-###  Bonjour , moi c'est Saintange Paul-érick, j'ai 35 ans je suis autodidacte développeur.
+###  Bonjour , moi c'est Saintange Paul-érick, j'ai 35 ans je suis autodidacte développeur "débutant".
 
 
 ###✨  Mes compétences du moment....
