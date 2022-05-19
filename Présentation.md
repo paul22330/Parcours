@@ -6,14 +6,16 @@
 ###  Bonjour , moi c'est Saintange Paul-érick, j'ai 35 ans je suis autodidacte (Développeur-Front-end).
 
 
-###✨  Mes compétences du moments
-       ----------------------------
+###✨  Mes compétences du moments ci-dessous
+       
 
 ###⚡ HTML | CSS | JS". 
 
 ###⚡ La photographie". 
 
 ###⚡ Le pentest "Hacking ethique". 
+
+###⚡ La musique". 
 
 <!--
 
