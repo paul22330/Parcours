@@ -3,12 +3,17 @@
 </p>
 
 
-###  Bonjour , moi c'est Saintange Paul-érick, j'ai 35 ans je suis autodidacte développeur "débutant".
+###  Bonjour , moi c'est Saintange Paul-érick, j'ai 35 ans je suis autodidacte (Développeur-Front-end).
 
 
-###✨  Mes compétences du moment....
+###✨  Mes compétences du moments
+       ----------------------------
 
-###⚡ HTML | CSS | => Un peut de Javascript mais le travail reste long, => Et du (REACT) que je commence a découvrir "petit a petit" . 
+###⚡ HTML | CSS | JS". 
+
+###⚡ La photographie". 
+
+###⚡ Le pentest "Hacking ethique". 
 
 <!--
 
