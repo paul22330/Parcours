@@ -13,9 +13,9 @@
 
 ###⚡ La photographie". 
 
-###⚡ Le pentest "Hacking ethique". 
+###⚡ Le pentest "Hacking éthique". 
 
-###⚡ La musique". 
+###⚡ La musiques". 
 
 <!--
 
