@@ -20,7 +20,7 @@
 
 # 📫 Contact me
 <p align="center">
-<a href="https://www.linkedin.com/in/#/" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="apoorvtyagi" height="30" width="30" /></a>&nbsp;
+<a href="https://www.linkedin.com/in/saintange-paul-%C3%A9rick/" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="apoorvtyagi" height="30" width="30" /></a>&nbsp;
 
 </p>
 
