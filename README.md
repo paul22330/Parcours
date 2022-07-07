@@ -1,9 +1,9 @@
-# Parcours
+## Mon Parcours
 
-Voici ma présentation . 
+# Voici ma présentation:
 
--De mon parcours de "Développeur-Front"
--A savoir que j'ai d'autres compétences,je touche un peut à tous.
+Qui je suis en quelque phrase ?
 
-- J'aime aussi beaucoup faire du Pentest d'un pc via une VM, ou vue que j'ai 2 ordinateurs un sur kali et l'autre sur un "windows7 tous claqué" et 1 téléphone android que jutilise comme cible de temps à autre.
+ À savoir que j'ai d'autres compétences, je touche un peu à tous, Je suis un autodidacte.
+ J'aime aussi faire du Pentest d'un pc via une VM, et vu que j'ai deux ordinateurs, un sûr kali et l'autre sur un "windows7, et un téléphone Android que j'utilise comme cible de temps à autre.
 
