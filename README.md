@@ -1,8 +1,6 @@
-## Mon Parcours
 
-# Voici ma présentation:
 
-Qui je suis en quelque phrase ?
+#  Ma présentation - mon parcours:
 
 Je m'appelle Saintange Paul-erick, j'ai 36 ans. 
 
