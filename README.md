@@ -19,13 +19,13 @@ Mon parcours scolaire étant compliqué et chaotique ! j'ai du renoncé à l'éc
 - Je suis allé jusqu'an CM2 de là, je me suis retrouvé dans ce que l'on appelait à l'époque des écoles réduites en nombre d'élèves. " École de perfectionnement ". 
 
 
-- Ensuite tous, c'est mal enchainé ! vue mes difficultés, j'ai vite été catalogué comme mauvaise éleve, j'ai été placé en IME (institut médico éducative), dès l'age d'aller en CM2 jusqu'à ma majorité, c'est-à-dire 18 ans. 
+- Ensuite tous, c'est mal enchainé ! vue mes difficultés, j'ai vite été catalogué comme mauvaise éleve, j'ai été placé en IME (institut médico éducative), dès l'âge d'aller en CM2 jusqu'à ma majorité, c'est-à-dire 18 ans. 
 
 
-- Pour sortir de L'IME, clairement de cette engrainage scolaire, c'est là où la décision a été prise par mes parents et moi-même, que j'essaye au moins d'avoir un CAP peu importe le domaine, il fallait que je sorte de là !! j'ai fini par choisir l'option Horticole "pépiniériste" pendant 2 ans en alternance"
+- Pour sortir de L'IME, clairement de cette engrainage scolaire, c'est là où la décision a été prise par mes parents et moi-même, que j'essaye au moins d'avoir un CAP peu importe le domaine, il fallait que je sorte de là !! j'ai fini par choisir l'option Horticole "pépiniériste" pendant 2 ans en alternance".
 
 
-- Une fois mon CAP en poche, j'ai fait plein de petit boulot sans grand intérêt personnellement, mis à part faire quelque chose de mes mains et de ma tête => ça allez de l'usine, en passant par les pompes funèbres, j'ai fait un peu de restauration, je suis allé aussi dans un abattoir, je m'occupais d'éclater des caisses de viande contre une table et il fallait ensuite trier toute sorte de viande, je vous laisse imaginé la scène à 4 h du matin ! dans les espaces verts, rénovation de logement et peintre en bâtiment pour les restaurants du ceour une superbe expérience d'ailleurs pour moi au passage ! tout cela, je les fais en intérim pendant des années, cela reste effrayant de voir le nombre de petit contrat que j'ai dû faire, sans avoir UE un CDD ou voir un CDI, je suis un peu dessus, mes bons ça fait aussi partie du jeu ! 
+- Une fois mon CAP en poche, j'ai fait plein de petit boulot sans grand intérêt personnellement, mis à part faire quelque chose de mes mains et de ma tête => ça allez de l'usine, en passant par les pompes funèbres, j'ai fait un peu de restauration, je suis allé aussi dans un abattoir, je m'occupais d'éclater des caisses de viande contre une table et il fallait ensuite trier toute sorte de viande, je vous laisse imaginé la scène à 4 h du matin ! dans les espaces verts, rénovation de logement et peintre en bâtiment pour les restaurants du ceour une superbe expérience d'ailleurs pour moi au passage ! tout cela, je les fais en intérim pendant des années, cela reste effrayant de voir le nombre de petit contrat que j'ai dû faire, sans avoir UE un CDD ou voir un CDI, je suis un peu dessus, mes bons ça fait aussi partie du jeu.! 
 
 Cordialement Saintange Paul-érick ;)
 
