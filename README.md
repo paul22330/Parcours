@@ -13,6 +13,9 @@ Mon parcours scolaire étant compliqué et chaotique ! j'ai du renoncé à l'éc
 
 Scolarité
 ----------
+
+Mon parcours scolaire étant compliqué et chaotique ! j'ai du renoncé à l'école très jeune, je n'aimai pas ça du tous, toutes les matières ne m'intéressé pas, la seule chose qui m'intéressé vraiment été d'aller m'amuser à la récréation, bref…
+
 - Je suis allé jusqu'an CM2 de là, je me suis retrouvé dans ce que l'on appelait à l'époque des écoles réduites en nombre d'élèves. " École de perfectionnement ". 
 
 
