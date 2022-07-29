@@ -9,8 +9,6 @@ Mes compétences, je touche un peu à tous. Je suis un autodidacte.
 Tous les autres notions ont été dans la continuité, j'ai cherché et j'ai tout trouvé par moi-même comment cela fonctionne. Un cas d'exemple JavaScript et un langage compliqué pour moi, j'ai passé énormément de temps dessus, j'essaye, je test, bref. Vous avez compris faut rien lâcher, il faut être tenace, persévérant, si on veut réussir sa tombe pas du ciel. Après, j'ai plein d'autres projets comme la photographie de paysage / et de portrait, et la musique, j'ai aussi pas mal de projets que je suis obligé de laisser tombé et de revenir dessus un peu plus tard. Actuellement, je suis à la recherche d'un travail temporaire, ou d'un stage en entreprise dans mon domaine, afin d'améliorer mes compétences et d'être entouré de professionnel qui pourront me guider tout au long de mon parcours, avec des horaires plutôt souple, j'ai aussi une reconnaissance travailleur handicapé.  J'espère que mon parcours pourra en inspiré peut être d'autre, qui à leur tour voudrait se lancer dans la belle aventure du code. 
 
 
-
-
 Scolarité
 ----------
 
